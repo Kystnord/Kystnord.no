@@ -1,0 +1,2 @@
+# Kystnord.no
+Nettside kystnord
