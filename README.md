@@ -18,7 +18,7 @@ I løpet av Januar 2026, vil butikken åpne ved
 
 
 
-**Følg med, det vil komme mange nye spennende produkter**
+**Følg med**
 
 
 
