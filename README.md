@@ -1,8 +1,12 @@
-index.html
-KystNord
-Service og distribusjon i Nord-Norge
+Kystnord.no er under etablering.
 
-Våre tjenester
-Verkstedtjenester
-Kontakt
-E-post: post@kystnord.no
+
+
+
+
+
+
+
+
+* Kystnord AS er en del av G&K Holding AS
+- Kjøpsvikveien 4 - 8590 Kjøpsvik - 
