@@ -10,6 +10,7 @@
 
 
 I løpet av Januar 2026, vil butikken åpne ved
+
 📍 Kjøpsvikveien 4, 8590 Kjøpsvik
 
 
