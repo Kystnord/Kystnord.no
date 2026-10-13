@@ -3,15 +3,13 @@
 
 
 
-Kystnord.no er under etablering.
+Kystnord.no er under etablering og skal levere produkter og tjenester til kunder i hele Nord-Norge. 
 
 
 
+📍 Kjøpsvikveien 4, 8590 Kjøpsvik
 
 
 
-
-
-
-* Kystnord AS er en del av G&K Holding AS
-- Kjøpsvikveien 4 - 8590 Kjøpsvik - 
+__________________________________________________________________________________________________________________
+* G&K Holding AS - Kjøpsvik Eiendom AS - Kystnord AS *
