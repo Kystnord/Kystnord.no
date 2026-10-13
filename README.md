@@ -1,6 +1,5 @@
 
-![Uploading kystnord_mountain_wave_62026_Nano_Banana_2.png…]()
-
+0bc7131272d9d4630e48319a39d5cf0e872d24f6
 
 
 
